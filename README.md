@@ -1,4 +1,3 @@
-# CNTT1-nh-p-m-n-c-ng-ngh-th-ng-tin-Session05_EXontap
 Dưới đây là đáp án cô đọng, viết đúng kiểu bài làm của sinh viên:
 
 ---
